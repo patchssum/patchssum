@@ -1,3 +1,1 @@
-![bive divider](https://files.catbox.moe/yv0esg.jpg)
-
-![bive divider 2](https://files.catbox.moe/kdk40s.jpg)
+##                                                                                                                 bive *or* puter ! ![bive pic](https://files.catbox.moe/fehbib.jpg)
