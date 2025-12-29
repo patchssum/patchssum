@@ -5,7 +5,7 @@
 puter / bive . 18+ . he it she . autdhdid
 </p>
 <p align="center">
-8> queer objectum lesbian . bive fictionkin
+8> queer objectum lesbian . bive/spengler/husk/skimble fictionkin
 </p>
 <p align="center">
 hp fans / pro endo / radq dni
