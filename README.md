@@ -9,5 +9,5 @@ puter/bive  _  18  _  he/it/she
 for pt users! 83
 </p>
 <p align="center">
-i am usually offtab or semi afk, unless im with my friend rowan 8D! i am w2i and i hang around the outlast/dispatch area
+whisper 2 int , outlast/dispatch area , feel free to sit w me if we're similar fandoms! 8D
 </p>
