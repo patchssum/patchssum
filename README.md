@@ -8,8 +8,11 @@
     autdhd & system . 
 </p>
 <p align="center">
-    whisper 2 int , outlast/dispatch area , p friendly idm sitting w anyone ! 8D
+    whisper 2 int , outlast/dispatch area , p friendly idm sitting w anyone ! though i am often offtab/idle unless speaking to someone .
     </p>
    <p align="center">
        usually hanging out w rowan ! my best friend ever bruh
+</p>
+<p align="center">
+if my display name has kin or intrj in it please dont interact with the intent of rping, ship or not
 </p>
