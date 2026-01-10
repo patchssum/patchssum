@@ -14,5 +14,5 @@
        usually hanging out w rowan ! my best friend ever bruh
 </p>
 <p align="center">
-if my display name has kin or intrj in it please dont interact with the intent of rping, ship or not
+if my display name has kin or intrj in it please dont interact with the intent of rping, ship or not (doesnt mean you cant interact as a fandom pony at all, its encouraged)
 </p>
