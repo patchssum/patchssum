@@ -8,7 +8,7 @@
     autdhd & system . 
 </p>
 <p align="center">
-    whisper 2 int , outlast/dispatch area , p friendly idm sitting w anyone ! though i am often offtab/idle unless speaking to someone .
+    whisper 2 int , outlast/dispatch area (occasionally in library area) , p friendly idm sitting w anyone ! though i am often offtab/idle unless speaking to someone .
     </p>
    <p align="center">
        usually hanging out w rowan ! my best friend ever bruh
