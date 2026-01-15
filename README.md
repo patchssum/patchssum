@@ -11,7 +11,7 @@
     whisper 2 int , outlast/dispatch area (occasionally in library area) , p friendly idm sitting w anyone ! though i am often offtab/idle unless speaking to someone .
     </p>
    <p align="center">
-       usually hanging out w rowan ! my best friend ever bruh
+       usually hanging out w rowan ! my best friend ever bruh <- if we are sat 2gether u r allowed to come say hi, but rowan gets uncomfortable when people decide to stick around too long.
 </p>
 <p align="center">
 if my display name has kin or intrj in it please dont interact with the intent of rping, ship or not (doesnt mean you cant interact as a fandom pony at all, its encouraged)
