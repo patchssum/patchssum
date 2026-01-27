@@ -5,7 +5,7 @@
     puter/bive  _  18  _  he/it/she
 </p>
 <p align="center">
-    autdhd & system . 
+    autdhd & system . i have chronic pain & fatigue , i wont always reply on time or will have small replies.
 </p>
 <p align="center">
     whisper 2 int , outlast/dispatch area (occasionally in library area) , p friendly idm sitting w anyone ! though i am often offtab/idle unless speaking to someone .
